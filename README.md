@@ -1,1 +1,2 @@
-# Darling-in-the-franxx-code-16-hiro-that-s-the-characters-name-
+it's a character from another anime named darling in the franxx
+artwork in repo
